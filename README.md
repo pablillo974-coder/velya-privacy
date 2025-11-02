@@ -1,1 +1,0 @@
-# velya-privacy
